@@ -1,9 +1,9 @@
 # HELLo 👋
 
-KENY
-PL Gdynia
+// KENY
+// PL Gdynia
 
-// DESIGN & DEVELOPE
+// DESIGN & DEVELOP
 // DREAM & EXECUTE
 
 // wordpress
