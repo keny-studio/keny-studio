@@ -1,4 +1,16 @@
-## Hi there 👋
+# HELLo 👋
+
+KENY
+PL Gdynia
+
+// DESIGN & DEVELOPE
+// DREAM & EXECUTE
+
+// wordpress
+// html css js php
+// vector raster
+// tattoo
+// art
 
 <!--
 **keny-studio/keny-studio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
