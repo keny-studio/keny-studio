@@ -7,8 +7,7 @@ $${\color{red}DREAM}$$ & $${\color{red}EXECUTE}$$
 ▫️ wordpress <br>
 ▫️ html css js php <br>
 ▫️ vector raster <br>
-▫️ tattoo<br>
-▫️ art
+▫️ tattoo art
 
 </br>
 
