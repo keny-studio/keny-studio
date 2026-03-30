@@ -10,7 +10,7 @@
 ⋆ TATTOO <br>
 
 
-[KENY.STUDIO](https://www.keny.studio)
+[WWW.KENY.STUDIO](https://www.keny.studio)
 
 </br>
 
