@@ -1,13 +1,16 @@
-# HELLo 🏴‍☠️
+🥷🏼ＫＥＮＹ
 
-KENY ▫️ PL Gdynia <br><br>
-$${\color{red}DESIGN}$$ & $${\color{red}DEVELOP}$$<br>
-$${\color{red}DREAM}$$ & $${\color{red}EXECUTE}$$
 
-▫️ wordpress <br>
-▫️ html css js php <br>
-▫️ vector raster <br>
-▫️ tattoo art
+### ${\color{red}DREAM ⋆ DESIGN ⋆ DEVELOP ⋆ DELIVER}$
+
+
+⋆ WEB <br>
+⋆ GRAPHIC <br>
+⋆ ART <br>
+⋆ TATTOO <br>
+
+
+[WWW.KENY.STUDIO](https://www.keny.studio)
 
 </br>
 
